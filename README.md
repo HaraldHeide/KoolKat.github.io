@@ -1,2 +1,2 @@
 # KoolKat.github.io
-DeeDee's world of whimsicle thoughts.
+DeeDee's world of whimsical thoughts.
